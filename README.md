@@ -1,2 +1,2 @@
 - 👋 Hi Friend, I'm nhatminh
-- bạn sắp pay acc khi ấn vào file này
+- bạnsắppayacckhiấnvàofilenày
